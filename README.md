@@ -9,5 +9,3 @@
 
 * 🏠　[https://alanalbert.github.io](https://alanalbert.github.io)
 
-
-![微信公众号](https://alanalbert.github.io/wechat.png)
