@@ -1,5 +1,5 @@
 
-### *Going...* 🏃‍♂️
+### 🏃‍♂️
 
 👥　[anhoder](https://anhoder.github.io)
 
