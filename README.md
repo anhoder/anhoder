@@ -1,6 +1,3 @@
-
-### 🏃‍♂️
-
 👥　[anhoder](https://anhoder.github.io)
 
 🇨🇳　China
